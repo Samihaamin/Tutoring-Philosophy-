@@ -1,6 +1,6 @@
 # Tutoring-Philosophy-
 
-An academic paper I wrote while interning as a Writing Tutor at Rutgers University, focusing on minimalist tutoring. [Click here to read my Tutoring Philosophy Paper](https://drive.google.com/file/d/0B-Im5Glhc7ZwbzVnQkRaUndBVDQ/view?usp=sharing) to read and feel free to share your thoughts!
+A reflection paper I wrote while interning as a Writing Tutor at Rutgers University, focusing on minimalist tutoring. [Click here to read my Tutoring Philosophy Paper](https://drive.google.com/file/d/0B-Im5Glhc7ZwbzVnQkRaUndBVDQ/view?usp=sharing) to read and feel free to share your thoughts!
 
 Here's links to all the works cited, in case you're interested in reading:
 
